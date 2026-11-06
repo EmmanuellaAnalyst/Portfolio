@@ -27,3 +27,4 @@ Project scope, data size, deliverables, price, and turnaround time are agreed be
 ## Contact
 
 X: [@EmmanuellaData](https://x.com/EmmanuellaData)
+E-mail: Emmanuellaagorom@gmail.com
